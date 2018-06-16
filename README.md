@@ -1,6 +1,18 @@
 # Agents of S.H.I.E.L.D.
 
 [Subtitle Link](http://transcripts.foreverdreaming.org/viewforum.php?f=140)
+## Season 1 Episode 14
+
+>**Doctor**  
+>We can keep her comfortable, but you'll need to make a decision on whether or not you want to keep her on life support.  
+>**Coulson**  
+>You're saying there's nothing to be done?  
+>**Doctor**  
+>I'm saying you need to call her family and get them here as soon as possible.  
+>**Coulson**  
+>We are her family.  
+
+
 
 ## Season 1 Episode 15
 
