@@ -16,3 +16,10 @@
 >Yes. But not for long.   
 >To hell with any protocols or any codes I used to be bound by.  
 >We have a long list of questions we need answers for and we are going after them ourselves.  
+
+>**BG**  
+>Encrypted line secure.  
+>**May**  
+>Update log 93.  
+>He knows. I repeat... Coulson knows.  
+
