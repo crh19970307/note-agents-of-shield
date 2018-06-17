@@ -1,5 +1,11 @@
 # Agents of S.H.I.E.L.D.
 
+<p align="center">
+    <img src="img/shield-logo.jpg">
+</p>
+
+Collection of my favorite lines.
+
 [Subtitle Link](http://transcripts.foreverdreaming.org/viewforum.php?f=140)
 ## Season 1 Episode 14
 
