@@ -47,4 +47,22 @@
 >You want a warm place to sleep, you make it.   
 >You want something to eat, you kill it.  
 
+## Season 2 Episode 4
+
+>**Coulson**    
+>But I need you to forget all that... and kill me as ordered.  
+>**May**    
+>What?  
+>**Coulson**   
+>You said it yourself ... I'm not getting better.   
+>I don't want to end up like Garrett, and taking me to some cabin won't change my brain.  
+>**May**     
+>I'll find a way.  
+>**Coulson**   
+>May... Nostalgia's fine, but then life happens. It's time to deal with reality.  
+>**May**    
+>Phil...please.  
+>**Coulson**    
+>Hard choices are coming. I need you to make this one... for me.  
+
 
