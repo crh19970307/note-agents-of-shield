@@ -41,3 +41,10 @@
 >I'll be damned if I'm gonna let Garrett and Ward get away with murder.  
 >And I want my plane back.
 
+>**Ward's Father**  
+>Out here, son, if you want something, you have to earn it.   
+>For here on out, you earn everything.   
+>You want a warm place to sleep, you make it.   
+>You want something to eat, you kill it.  
+
+
