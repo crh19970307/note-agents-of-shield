@@ -35,3 +35,9 @@
 >Update log 93.  
 >He knows. I repeat... Coulson knows.  
 
+## Season 1 Episode 21
+
+>**Coulson**  
+>I'll be damned if I'm gonna let Garrett and Ward get away with murder.  
+>And I want my plane back.
+
