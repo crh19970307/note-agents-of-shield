@@ -71,4 +71,32 @@ Collection of my favorite lines.
 >**Coulson**    
 >Hard choices are coming. I need you to make this one... for me.  
 
+## Season 2 Episode 11
+
+>**Skye**  
+>We lost.   
+>We failed.  
+>**Coulson**   
+>Skye, don't say that.   
+>**Skye**    
+>It wasn't because of HYDRA. It was because of me.  
+>**Coulson**  
+>Don't blame yourself.   
+>**Skye**  
+>If I didn't go down there, you could have blown the place!   
+>**Coulson**  
+>That was one battle. This is a war.   
+>**Skye**  
+>And Ward and my father ... - The rotten core   
+>**Coulson**  
+>Skye...   
+>**Skye**  
+>at the center of everything!  
+>**Coulson**  
+>We did not fail! Trip prevented a disaster, and Whitehall's dead.   
+>We cut off the head.   
+>And while HYDRA scrambles for a new one, I will crush them!   
+>I'm gonna make somebody pay ... whoever the hell it is.  
+
+
 
