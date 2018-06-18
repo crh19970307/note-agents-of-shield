@@ -98,5 +98,17 @@ Collection of my favorite lines.
 >And while HYDRA scrambles for a new one, I will crush them!   
 >I'm gonna make somebody pay ... whoever the hell it is.  
 
+## Season 2 Episode 12
+
+>**Kava(the kree)**   
+>Your friend Skye is an atrocity, and I must go put an end to this.  
+>**Mike**  
+>We'll decide what she is. But for now, you're not going anywhere.  
+>**Kava**  
+>This is not your fight.  
+>**Mike**  
+>It kind of is now.  
+
+
 
 
