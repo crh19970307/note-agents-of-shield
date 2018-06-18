@@ -109,6 +109,17 @@ Collection of my favorite lines.
 >**Mike**  
 >It kind of is now.  
 
+## Season 2 Episode 16
+
+>**Flower**  
+>Let her stay. We have so much to talk about.  
+>**Skye**  
+>What happened to you?  
+>**Flower**  
+>Destiny... Apparently.  
+>I wanted to be set free, but now I can't even bear the light of day.  
+>I dread being awake, but my sleep is filled with such horrible nightmares.  
+
 
 
 
