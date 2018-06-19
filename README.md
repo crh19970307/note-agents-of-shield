@@ -123,6 +123,17 @@ Collection of my favorite lines.
 >I wanted to be set free, but now I can't even bear the light of day.  
 >I dread being awake, but my sleep is filled with such horrible nightmares.  
 
+## Season 2 Episode 20  
+
+>**Gonzales**  
+>I know that you were separated from your daughter.   
+>I thought that that might belong to her.   
+>A traditional Chinese gift to ward off evil spirits, isn't it?  
+>**Jia Ying**  
+>I never got a chance to give it to her.  
+>I kept hoping that if she was alive, evil would never find her.  
+
+
 
 
 
