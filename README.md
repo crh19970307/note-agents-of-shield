@@ -133,7 +133,22 @@ Collection of my favorite lines.
 >I never got a chance to give it to her.  
 >I kept hoping that if she was alive, evil would never find her.  
 
+## Season 3 Episode 9
 
+>**Simmons**  
+>Fitz, you can't do this.  
+>**Fitz**  
+>My mind's made up, Jemma.  
+>**Simmons**    
+>No, we can't let them bring that thing back to this planet!  
+>Fitz... please just let them kill me.  
+>**Fitz**   
+>I can't do that. I won't.  
+>I lost you once.  
+>I can't lose you again.  
+>I'm just... I'm not strong enough to live in a world that doesn't have you in it.  
+>**Simmons**  
+>Oh, come back to me.  
 
 
 
