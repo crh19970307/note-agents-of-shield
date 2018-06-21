@@ -173,6 +173,33 @@ Collection of my favorite lines.
 >**Bobbi**  
 >It's the Spy's Goodbye.  
 
+## Season 3 Episode 22
+
+>**Lincon**   
+>What are you ... That's ...   
+>Where did you get that?  
+>Daisy? What are you ...  
+>**Daisy**   
+>I'm accepting fate.  
+>**Lincon**   
+>No. Don't try to do this yourself.  
+>**Daisy**   
+>Hive will come down here looking for us.  
+>If the others can keep him occupied, I'll be able ...  
+>**Lincon**   
+>No, I remember what you said about your vision.  
+>Someone will be in that Quinjet with the warhead.  
+>**Daisy**   
+>Only if I have to.  
+>**Lincon**  
+>Do not go in there. That thing will fly itself if nobody touches the controls.  
+>**Daisy**  
+>I know. I know.  
+>**Lincon**  
+>I ... I know what you're thinking.  
+>You said you can't live with what you've done, but you have to. Okay?   
+>Promise me you won't ... you won't try to... atone for your sins with some kind of sacrifice.  
+
 
 
 
