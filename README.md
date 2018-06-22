@@ -200,7 +200,30 @@ Collection of my favorite lines.
 >You said you can't live with what you've done, but you have to. Okay?   
 >Promise me you won't ... you won't try to... atone for your sins with some kind of sacrifice.  
 
+## Season 4 Episode 1 
 
+>**Yoyo**  
+>They won't give up on you, especially Coulson.  
+>All he wants is to find you.  
+>**Daisy**  
+>Well, that's too bad, 'cause there's only one thing I want.  
+>**Yoyo**  
+>Oh, yeah? What's that?  
+>**Daisy**  
+>Nothing to lose.  
 
+>**May**  
+>You actually trust this guy?   
+>Our team split up to lead departments, given different colors.   
+>'Cause we're experts? No.   
+>I think the Director broke up the band on purpose.  
+>**Simons**  
+>Of course he did!  
+>As soon as Talbot gave the location of this base to the president, things changed.  
+>I knew we'd be divided, undermined, kept in the dark,   
+>so I have been clawing for as much power as I can possibly grab to keep a modicum of control over any of this.  
+>After all we've been through...
+
+ 
 
 
